@@ -4,5 +4,5 @@ Primer examen corto Programación en SIG
 [Resumen](https://6f33fa7f78ea46e2aaca-my.sharepoint.com/personal/steven_guillenrivera_ucr_ac_cr/_layouts/15/doc.aspx?sourcedoc={25d768da-52a3-4dfc-9365-340b0878b059}&action=edit)
 
 
-
+![](https://unsplash.com/es/fotos/EUsVwEOsblE)
 
